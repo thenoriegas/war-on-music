@@ -1,0 +1,1 @@
+![War on Music](cover.png)
